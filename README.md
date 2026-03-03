@@ -1,3 +1,5 @@
+Additional notes in this tweet series about development of accelerator: [x.com/elcilerdenbiri/status/2028801802116690118](https://x.com/elcilerdenbiri/status/2028801802116690118)
+
 [![](https://github.com/elcilerdenbiri/elcilerdenbiri/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://github.com/elcilerdenbiri/Fusion_Battery/tree/main/videos)
 
 [![kapak](https://raw.githubusercontent.com/elcilerdenbiri/Fusion_Battery/main/kapak.png)](https://raw.githubusercontent.com/elcilerdenbiri/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)
