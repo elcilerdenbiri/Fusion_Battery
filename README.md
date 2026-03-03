@@ -1,13 +1,4 @@
-Patent Almamak ve Manganin Kullanmamak Şartıyla Dilediğiniz Gibi Bu Depodaki Yöntemleri Kullanabilirsiniz.
-__________________________________________________________________________________________________________
-
-Yukarıdaki çizginin üstündeki satırdaki açıklamayı yapmamın nedeni ruhbanlık uydurmanız patent enstitüleri açmanızdır. şu adamlardan ders alın: [youtube.com/shorts/ftkx0IP9wSE](https://youtube.com/shorts/ftkx0IP9wSE)
-________________________________________________________________________________________________________________________________________________________________________________________________________________________
-
-Manganin Yerine Konstantan Kullanın İşte Nedeni: [x.com/elcilerdenbiri/status/2021981925133697416](https://x.com/elcilerdenbiri/status/2021981925133697416)
-____________________________________________________________________________________________________________________________________________________________________
-
-Azim Kuran'ın 57:25 Ayetinde Sözünü Ettiği Demirin İçindeki باس شديد "Şiddetli Güç"
+O Azim Kuran'ın 57:25 Ayetinde Sözünü Ettiği Demirin İçindeki باس شديد "Şiddetli Güç"
 
 [![](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://github.com/TANRININresulu/Fusion_Battery/tree/main/videos)
 
@@ -134,3 +125,7 @@ Dünya'daki kötülüklerin tek bir nedeni var [7:19](https://acikkuran.com/7/19
 _________________________________
 
 [Direction For Rotation For Gravitational Accelerator:](https://x.com/PhilosophyOfPhy/status/2017508768251310336)
+
+__________________________________
+
+Manganin Yerine Konstantan Kullanılmalı: [x.com/elcilerdenbiri/status/2021981925133697416](https://x.com/elcilerdenbiri/status/2021981925133697416)
