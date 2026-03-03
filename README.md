@@ -1,6 +1,10 @@
 Patent Almamak ve Manganin Kullanmamak Şartıyla Dilediğiniz Gibi Bu Depodaki Yöntemleri Kullanabilirsiniz.
 __________________________________________________________________________________________________________
 
+Yukarıdaki çizginin üstündeki satırdaki açıklamayı yapmamın nedeni ruhbanlık uydurmanız patent enstitüleri açmanızdır. şu adamlardan ders alın: [youtube.com/shorts/ftkx0IP9wSE](youtube.com/shorts/ftkx0IP9wSE)
+__________________________________________________________________________________________________________________________________________________________________________________________
+
+
 Azim Kuran'ın 57:25 Ayetinde Sözünü Ettiği Demirin İçindeki باس شديد "Şiddetli Güç"
 
 [![](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://github.com/TANRININresulu/Fusion_Battery/tree/main/videos)
