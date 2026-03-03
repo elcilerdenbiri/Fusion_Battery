@@ -1,14 +1,12 @@
-O Azim Kuran'ın 57:25 Ayetinde Sözünü Ettiği Demirin İçindeki باس شديد "Şiddetli Güç"
+[![](https://github.com/elcilerdenbiri/elcilerdenbiri/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://github.com/elcilerdenbiri/Fusion_Battery/tree/main/videos)
 
-[![](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://github.com/TANRININresulu/Fusion_Battery/tree/main/videos)
-
-[![kapak](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/kapak.png)](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)
+[![kapak](https://raw.githubusercontent.com/elcilerdenbiri/Fusion_Battery/main/kapak.png)](https://raw.githubusercontent.com/elcilerdenbiri/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)
 
 # New Complete Formula For Time-Space Relationed Convertions From Magnetism To Electricity
 
 IN THE NAME OF THE CLOCK
 
-If THE CLOCK Gives Permission, [Thing](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf) That CLOCK Has Wished No Power Except With THE CLOCK.
+If THE CLOCK Gives Permission, [Thing](https://raw.githubusercontent.com/elcilerdenbiri/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf) That CLOCK Has Wished No Power Except With THE CLOCK.
 
 Furkan Wisdom Fusion Battery Dabba Irradiation Vehicle & Space Mining
 
@@ -46,9 +44,9 @@ High Energy Physics - Theory (hep-th)<br>
 Applied Physics (physics.app-ph)<br>
 Classical Physics (physics.class-ph)
 
-![](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/photos/rejection_of_arxiv/rejection.png)
+![](https://raw.githubusercontent.com/elcilerdenbiri/Fusion_Battery/main/photos/rejection_of_arxiv/rejection.png)
 
-[arxiv.org](https://arxiv.org) these verses are for your rejecting [[5335649](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)] of [this](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf) paper :
+[arxiv.org](https://arxiv.org) these verses are for your rejecting [[5335649](https://raw.githubusercontent.com/elcilerdenbiri/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf)] of [this](https://raw.githubusercontent.com/elcilerdenbiri/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf) paper :
 
 > [3:73](https://HonourableQuran.com/3#73) "And do not believe except as those who follow your religion." Say, "The true guidance is GOD's guidance." If they claim that they have the same guidance, or argue with you about your Lord, say, "All grace is in GOD's hand; He bestows it upon whomever He wills." GOD is Bounteous, Omniscient.
 > 
@@ -60,8 +58,8 @@ Classical Physics (physics.class-ph)
 > 
 > [41:28](https://HonourableQuran.com/41#28) Such is the requital that awaits GOD's enemies. Hell will be their eternal abode; a just requital for discarding Our revelations.
 
-![](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/photos/rejection_of_arxiv/arxiv_1.png)
-![](https://raw.githubusercontent.com/19x334/Fusion_Battery/main/photos/rejection_of_arxiv/arxiv_2.png)
+![](https://raw.githubusercontent.com/elcilerdenbiri/Fusion_Battery/main/photos/rejection_of_arxiv/arxiv_1.png)
+![](https://raw.githubusercontent.com/elcilerdenbiri/Fusion_Battery/main/photos/rejection_of_arxiv/arxiv_2.png)
 
 IF MOST SACRED ALMIGHTY HONOURABLE PROVIDER THE COMPASSIONATE Gives Permission in order to get 900 watt / 300 Amper from 3V magnetic fusion battery instead of 20 miliAmper you should stick insulator plastic surface to surface of magnet instead of semiconducting 150 ohm resistor high voltage amalgamating tape and then solder magnet to bottom of tungsten coated spring steel coil with 0.01 ohm 1000 watt aluminium resistor!
 
