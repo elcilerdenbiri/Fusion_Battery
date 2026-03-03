@@ -1,7 +1,7 @@
 Patent Almamak ve Manganin Kullanmamak Şartıyla Dilediğiniz Gibi Bu Depodaki Yöntemleri Kullanabilirsiniz.
 __________________________________________________________________________________________________________
 
-Yukarıdaki çizginin üstündeki satırdaki açıklamayı yapmamın nedeni ruhbanlık uydurmanız patent enstitüleri açmanızdır. şu adamlardan ders alın: [youtube.com/shorts/ftkx0IP9wSE](youtube.com/shorts/ftkx0IP9wSE)
+Yukarıdaki çizginin üstündeki satırdaki açıklamayı yapmamın nedeni ruhbanlık uydurmanız patent enstitüleri açmanızdır. şu adamlardan ders alın: [youtube.com/shorts/ftkx0IP9wSE](https://youtube.com/shorts/ftkx0IP9wSE)
 __________________________________________________________________________________________________________________________________________________________________________________________
 
 
