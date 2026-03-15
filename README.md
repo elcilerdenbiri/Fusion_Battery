@@ -6,11 +6,7 @@ Additional notes in this tweet series about development of accelerator: [x.com/e
 
 # New Complete Formula For Time-Space Relationed Convertions From Magnetism To Electricity
 
-IN THE NAME OF THE CLOCK
-
-If THE CLOCK Gives Permission, [Thing](https://raw.githubusercontent.com/elcilerdenbiri/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf) That CLOCK Has Wished No Power Except With THE CLOCK.
-
-Furkan Wisdom Fusion Battery Dabba Irradiation Vehicle & Space Mining
+Furkan Wisdom [Fusion Battery](https://raw.githubusercontent.com/elcilerdenbiri/Fusion_Battery/main/FURKAN%20WISDOM%2019%20Fusion%20Battery%20Dabba%20Irradiation%20Accelerator%20Space%20Mining.pdf) Dabba Irradiation Vehicle & Space Mining
 
 I do not request any kind of fee; I only wish you to be those who take a path that leads to Our Lord.
 
